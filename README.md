@@ -1,4 +1,4 @@
-- 👋 Hi, Everybody My Name Is Fuji Anggara Lead Optimism Indonesia,i am professional committed to the blockchain and cryptocurrency ecosystem. I have extensive experience in various crypto projects, including prominent networks like Binance Smart Chain, SUI, Polygon, Ethereum, and other blockchain projects. Furthermore, I have developed high-quality writing skills and have served as an ambassador in the blockchain community.
+- 👋 Hi, Everybody My Name Is Fuji Anggara ,i am professional committed to the blockchain and cryptocurrency ecosystem. I have extensive experience in various crypto projects, including prominent networks like Binance Smart Chain, SUI, Polygon, Ethereum, and other blockchain projects. Furthermore, I have developed high-quality writing skills and have served as an ambassador in the blockchain community.
 
 Experience as an Ambassador
 
